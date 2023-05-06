@@ -1,1 +1,0 @@
-# jkochan3.github.io
